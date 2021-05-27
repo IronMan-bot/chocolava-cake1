@@ -1,1 +1,2 @@
 # chocolava-cake1
+To make this lava cake, you only need cocoa powder, baking soda and chocolate. The rest of the ingredients are easily available in an Indian kitchen. i have used bitter sweet chocolate to get the molten lava. You can use sweet or semi sweet chocolate too. Just make sure to use both good quality chocolate and cocoa powder. If possible do use couverture chocolate that has cocoa butter in it.
